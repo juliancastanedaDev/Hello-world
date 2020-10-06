@@ -1,1 +1,1 @@
-# Hello-world
+# Hello world I am Passionate, responsible, organized in what to do, with skills for software development with Python, CSS, Javascript, HTML, SQL, lover of technology, process automation and with much to learn. With the ability to demonstrate leadership, teamwork, agile, autonomous learning and continuous improvement.
